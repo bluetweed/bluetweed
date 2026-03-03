@@ -1,4 +1,4 @@
-Hello? My name is taekyung, south korea.
+💐Hello? My name is taekyung, south korea.
 
 I like coding and computer and you.
 
